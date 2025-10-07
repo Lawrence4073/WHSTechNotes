@@ -12,3 +12,5 @@ Working at a visual store to get real money will be good for the future. Working
 The meaning "6,7" came from a song called "doot doot" and in this song the rapper says '6,7" but no ones was really saying it in late 2024 The rap song "Doot Doot (6 7)" by Skrilla is released. The track, which repeats the lyric "six-seven," goes viral on TikTok as a sound. March 2025 A video of a child yelling "6-7" and performing a hand motion at an Amateur Athletic Union basketball game goes viral. The "6-7 Kid" becomes a meme in his own right, propelling the trend to wider popularity.
 # October 6, 2025
 If I was in charge of my school i woudld allow students to use their phones to help them with their work and let them use AI once they are done with their work they can go on their phone so and play games or watch videos some learning apps would be chat gpt and question ai i would unblock game websites so the students can play games on their computers when they are done working so they have something to do
+# October 7, 2025
+MINECRAFT Heros Journey
