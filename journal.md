@@ -14,3 +14,10 @@ The meaning "6,7" came from a song called "doot doot" and in this song the rappe
 If I was in charge of my school i woudld allow students to use their phones to help them with their work and let them use AI once they are done with their work they can go on their phone so and play games or watch videos some learning apps would be chat gpt and question ai i would unblock game websites so the students can play games on their computers when they are done working so they have something to do
 # October 7, 2025
 MINECRAFT Heros Journey
+# October 16, 2025
+## Prompt
+Make me a short education quiz game about math for students in highschool
+## Reflection
+ I've created an interactive math quiz with 5 high school level questions covering algebra, geometry, and functions. The quiz features a progress bar, instant feedback with explanations, and a final score with encouraging messages. This game helps highschool students practice more, and helps them learn more where ever they are. This game helps students in class and gets them to know more for the future. The game works for any grade in highschool.
+## Link
+https://67language.my.canva.site/copy-of-high-school-math-quiz-game
