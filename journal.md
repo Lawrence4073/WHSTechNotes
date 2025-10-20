@@ -21,3 +21,10 @@ Make me a short education quiz game about math for students in highschool
  I've created an interactive math quiz with 5 high school level questions covering algebra, geometry, and functions. The quiz features a progress bar, instant feedback with explanations, and a final score with encouraging messages. This game helps highschool students practice more, and helps them learn more where ever they are. This game helps students in class and gets them to know more for the future. The game works for any grade in highschool.
 ## Link
 https://67language.my.canva.site/copy-of-high-school-math-quiz-game
+# October 20, 2025
+
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin |Second      |91A      |
+| Hardeep  |Third       |61F      |
+| Marla    |First       |35B      |
