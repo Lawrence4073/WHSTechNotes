@@ -28,3 +28,5 @@ https://67language.my.canva.site/copy-of-high-school-math-quiz-game
 | Franklin |Second      |91A      |
 | Hardeep  |Third       |61F      |
 | Marla    |First       |35B      |
+# October 27, 2025
+Technology can help us stay safe and informed about natural disasters and when we should start getting prepared technology allows people to look on their phones and check the weather. Technology also allows people to look at the news and check the weather. People can also search on the internet how they should prepare if a natural disaster is coming like a flood, wildfire, and a hurricane. Techonology is good for people to have because it can be helpful and save someones life in the future.
