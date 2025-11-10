@@ -30,3 +30,6 @@ https://67language.my.canva.site/copy-of-high-school-math-quiz-game
 | Marla    |First       |35B      |
 # October 27, 2025
 Technology can help us stay safe and informed about natural disasters and when we should start getting prepared technology allows people to look on their phones and check the weather. Technology also allows people to look at the news and check the weather. People can also search on the internet how they should prepare if a natural disaster is coming like a flood, wildfire, and a hurricane. Techonology is good for people to have because it can be helpful and save someones life in the future.
+# November 10, 2025
+
+Technology has significantly reshaped holiday celebrations offering both advantages and potential drawbacks Nowadays families separated by distance can connect with video calls sharing moments in real time which was impossible in the past Online shopping has also become prevalent allowing people to purchase gifts from the comfort of their homes avoiding crowded stores however this convienience can lead to less face to face interaction and a focus on material gifts rather than personal connections
