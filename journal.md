@@ -33,3 +33,6 @@ Technology can help us stay safe and informed about natural disasters and when w
 # November 10, 2025
 
 Technology has significantly reshaped holiday celebrations offering both advantages and potential drawbacks Nowadays families separated by distance can connect with video calls sharing moments in real time which was impossible in the past Online shopping has also become prevalent allowing people to purchase gifts from the comfort of their homes avoiding crowded stores however this convienience can lead to less face to face interaction and a focus on material gifts rather than personal connections
+# November 17, 2025
+
+Im looking forward to hang out with family and eat alot of food and not worry about going to school
