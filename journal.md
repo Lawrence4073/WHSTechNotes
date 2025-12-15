@@ -39,3 +39,6 @@ Im looking forward to hang out with family and eat alot of food and not worry ab
 # December 1, 2025
 
 One job that uses drone delivery operator, which is the person who controls and monitors delivery drones for companies. programmers help by the software that tells the drones how to fly, avoid obstacles, and reach the right locattion, i found on the U.S bureau of labor statistics websites that drone operators make around 99,000 a year on average, which suprised me because I didnt know it would be that high
+# December 15, 2025
+
+For winter break ima go out with friends and family then ima go to my dads side of the family and ima open my gifts and then ina go back home to my moms and ima open gifts there
