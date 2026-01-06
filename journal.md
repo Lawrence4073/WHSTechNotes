@@ -42,3 +42,6 @@ One job that uses drone delivery operator, which is the person who controls and 
 # December 15, 2025
 
 For winter break ima go out with friends and family then ima go to my dads side of the family and ima open my gifts and then ina go back home to my moms and ima open gifts there
+# January 6, 2026
+
+i used technology by being on my phone and staying up and i was playing on my playstation with my brother and some friends we stayed up all night and was spending the break like we graduated from school
