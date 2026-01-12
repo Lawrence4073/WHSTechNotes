@@ -45,3 +45,6 @@ For winter break ima go out with friends and family then ima go to my dads side 
 # January 6, 2026
 
 i used technology by being on my phone and staying up and i was playing on my playstation with my brother and some friends we stayed up all night and was spending the break like we graduated from school
+# January 12, 2026
+
+Autcraft was created by Stuart Duncan to solve the problem of bullying, griefing, and exclusion autistic children faced on mainstream Minecraft servers, providing a safe, moderated, and inclusive virtual world where they could build, play, and socialize without fear, fostering creativity and self-confidence in a supportive community.
