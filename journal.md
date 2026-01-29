@@ -51,3 +51,6 @@ Autcraft was created by Stuart Duncan to solve the problem of bullying, griefing
 # January 20, 2026
 
 Technology can promote a fairer society through online education platforms. These platforms offer access to educational resources for individuals regardless of their geographic location or socioeconomic status. This democratization of knowledge allows people from disadvantage backgrounds to acquire skills and improve their opportunities.
+# January 29, 2026
+
+I took that map test and it was alright nothing felt different i guessed on the first half and the second half was lanuage and i actually tried and got an overall of 261 it was just boring and i was kinda hungry and just wanted to go home
