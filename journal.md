@@ -54,3 +54,6 @@ Technology can promote a fairer society through online education platforms. Thes
 # January 29, 2026
 
 I took that map test and it was alright nothing felt different i guessed on the first half and the second half was lanuage and i actually tried and got an overall of 261 it was just boring and i was kinda hungry and just wanted to go home
+# February 2, 2026
+
+what it means to behave professionally is to be on good behavor and have respect for everyone and the evironment
