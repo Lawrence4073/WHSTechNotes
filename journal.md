@@ -57,3 +57,6 @@ I took that map test and it was alright nothing felt different i guessed on the 
 # February 2, 2026
 
 what it means to behave professionally is to be on good behavor and have respect for everyone and the evironment
+# February 11, 2026
+
+i enjoy football i play a little with family i didnt watch the superbowl
