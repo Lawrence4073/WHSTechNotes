@@ -60,3 +60,6 @@ what it means to behave professionally is to be on good behavor and have respect
 # February 11, 2026
 
 i enjoy football i play a little with family i didnt watch the superbowl
+# march 23
+
+I chose my brackets by gussing and i didnt know what i was doing 
