@@ -63,3 +63,6 @@ i enjoy football i play a little with family i didnt watch the superbowl
 # march 23
 
 I chose my brackets by gussing and i didnt know what i was doing 
+# March 30, 2026
+
+Duke lost to UConn 73-72 in the 2026 Elite Eight after blowing a 19-point first-half lead, marking the largest halftime lead ever squandered by a No. 1 seed in NCAA Tournament history.
