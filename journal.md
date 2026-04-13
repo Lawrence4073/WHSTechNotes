@@ -66,3 +66,6 @@ I chose my brackets by gussing and i didnt know what i was doing
 # March 30, 2026
 
 Duke lost to UConn 73-72 in the 2026 Elite Eight after blowing a 19-point first-half lead, marking the largest halftime lead ever squandered by a No. 1 seed in NCAA Tournament history.
+# April 13, 2026
+
+Modern space technology is reliable enough for long missions, but it still has important limitations that must be improved. One key technology is life support systems, which provide astronauts with oxygen, water, and temperature control, helping them survive in space for extended periods.
