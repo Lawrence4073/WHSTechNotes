@@ -69,3 +69,6 @@ Duke lost to UConn 73-72 in the 2026 Elite Eight after blowing a 19-point first-
 # April 13, 2026
 
 Modern space technology is reliable enough for long missions, but it still has important limitations that must be improved. One key technology is life support systems, which provide astronauts with oxygen, water, and temperature control, helping them survive in space for extended periods.
+# April 20, 2026
+
+AI is changing how people experience and trust music and media because it makes content faster to create but also harder to verify. My claim is that while AI content can be entertaining and useful, people should be more cautious about trusting it the same way they trust human-made work. For example, AI-generated songs and deepfake videos have appeared on social media, sometimes sounding or looking very real even when they are not. This shows that AI can influence people similarly to human creators because it can copy styles, voices, and emotions. However, there should be limits on AI use in music and media, such as requiring labels or warnings so audiences know when something is AI-generated. This is important because without transparency, people may believe false information or think a real artist made something they did not.
