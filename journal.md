@@ -32,13 +32,13 @@ https://67language.my.canva.site/copy-of-high-school-math-quiz-game
 Technology can help us stay safe and informed about natural disasters and when we should start getting prepared technology allows people to look on their phones and check the weather. Technology also allows people to look at the news and check the weather. People can also search on the internet how they should prepare if a natural disaster is coming like a flood, wildfire, and a hurricane. Techonology is good for people to have because it can be helpful and save someones life in the future.
 # November 10, 2025
 
-Technology has significantly reshaped holiday celebrations offering both advantages and potential drawbacks Nowadays families separated by distance can connect with video calls sharing moments in real time which was impossible in the past Online shopping has also become prevalent allowing people to purchase gifts from the comfort of their homes avoiding crowded stores however this convienience can lead to less face to face interaction and a focus on material gifts rather than personal connections
+Technology has significantly reshaped holiday celebrations offering both advantages and potential drawbacks Nowadays families separated by distance can connect with video calls sharing moments in real time which was impossible in the past Online shopping has also become prevalent allowing people to purchase gifts from the comfort of their homes avoiding crowded stores however this convienience can lead to less face to face interaction and a focus on material gifts rather than personal connections.`` I used AI to assist with this entry.
 # November 17, 2025
 
 Im looking forward to hang out with family and eat alot of food and not worry about going to school
 # December 1, 2025
 
-One job that uses drone delivery operator, which is the person who controls and monitors delivery drones for companies. programmers help by the software that tells the drones how to fly, avoid obstacles, and reach the right locattion, i found on the U.S bureau of labor statistics websites that drone operators make around 99,000 a year on average, which suprised me because I didnt know it would be that high
+One job that uses drone delivery operator, which is the person who controls and monitors delivery drones for companies. programmers help by the software that tells the drones how to fly, avoid obstacles, and reach the right locattion, i found on the U.S bureau of labor statistics websites that drone operators make around 99,000 a year on average, which suprised me because I didnt know it would be that high. I used AI to assist with this entry.
 # December 15, 2025
 
 For winter break ima go out with friends and family then ima go to my dads side of the family and ima open my gifts and then ina go back home to my moms and ima open gifts there
@@ -47,10 +47,10 @@ For winter break ima go out with friends and family then ima go to my dads side 
 i used technology by being on my phone and staying up and i was playing on my playstation with my brother and some friends we stayed up all night and was spending the break like we graduated from school
 # January 12, 2026
 
-Autcraft was created by Stuart Duncan to solve the problem of bullying, griefing, and exclusion autistic children faced on mainstream Minecraft servers, providing a safe, moderated, and inclusive virtual world where they could build, play, and socialize without fear, fostering creativity and self-confidence in a supportive community.
+Autcraft was created by Stuart Duncan to solve the problem of bullying, griefing, and exclusion autistic children faced on mainstream Minecraft servers, providing a safe, moderated, and inclusive virtual world where they could build, play, and socialize without fear, fostering creativity and self-confidence in a supportive community. I used AI to assist with this entry.
 # January 20, 2026
 
-Technology can promote a fairer society through online education platforms. These platforms offer access to educational resources for individuals regardless of their geographic location or socioeconomic status. This democratization of knowledge allows people from disadvantage backgrounds to acquire skills and improve their opportunities.
+Technology can promote a fairer society through online education platforms. These platforms offer access to educational resources for individuals regardless of their geographic location or socioeconomic status. This democratization of knowledge allows people from disadvantage backgrounds to acquire skills and improve their opportunities. I used AI to assist with this entry.
 # January 29, 2026
 
 I took that map test and it was alright nothing felt different i guessed on the first half and the second half was lanuage and i actually tried and got an overall of 261 it was just boring and i was kinda hungry and just wanted to go home
@@ -68,7 +68,7 @@ I chose my brackets by gussing and i didnt know what i was doing
 Duke lost to UConn 73-72 in the 2026 Elite Eight after blowing a 19-point first-half lead, marking the largest halftime lead ever squandered by a No. 1 seed in NCAA Tournament history.
 # April 13, 2026
 
-Modern space technology is reliable enough for long missions, but it still has important limitations that must be improved. One key technology is life support systems, which provide astronauts with oxygen, water, and temperature control, helping them survive in space for extended periods.
+Modern space technology is reliable enough for long missions, but it still has important limitations that must be improved. One key technology is life support systems, which provide astronauts with oxygen, water, and temperature control, helping them survive in space for extended periods. I used AI to assist with this entry.
 # April 20, 2026
 
-AI is changing how people experience and trust music and media because it makes content faster to create but also harder to verify. My claim is that while AI content can be entertaining and useful, people should be more cautious about trusting it the same way they trust human-made work. For example, AI-generated songs and deepfake videos have appeared on social media, sometimes sounding or looking very real even when they are not. This shows that AI can influence people similarly to human creators because it can copy styles, voices, and emotions. However, there should be limits on AI use in music and media, such as requiring labels or warnings so audiences know when something is AI-generated. This is important because without transparency, people may believe false information or think a real artist made something they did not.
+AI is changing how people experience and trust music and media because it makes content faster to create but also harder to verify. My claim is that while AI content can be entertaining and useful, people should be more cautious about trusting it the same way they trust human-made work. For example, AI-generated songs and deepfake videos have appeared on social media, sometimes sounding or looking very real even when they are not. This shows that AI can influence people similarly to human creators because it can copy styles, voices, and emotions. However, there should be limits on AI use in music and media, such as requiring labels or warnings so audiences know when something is AI-generated. This is important because without transparency, people may believe false information or think a real artist made something they did not. I used AI to assist with this entry.
